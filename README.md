@@ -1,4 +1,4 @@
-- 👋 'Sup y'all, I’m @ASKBang1306
+- 👋 'Sup y'all, I’m Asmitha Sri K aka ASK ✌️😊
 - 👀 I’m interested in upgrading my skills
 - 🌱 I’m currently learning BTech IT
 - 📫 How to reach me? ig:@sriasmitha6
